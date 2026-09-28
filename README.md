@@ -1,0 +1,2 @@
+# premium-viking-axe-001-viking-axe-forging-beard-sha
+Stop pretending your beard is a 'Viking look' when your axe is a rusty mess and your beard is just unkempt. The Viking Axe Forging &amp; Beard Shape Craft Hub is your all-in-one Notion template to forge authentic axes and sculpt legendary beards—no guesswork, no half-measures.  This hub bridges the gap between the forge and the grooming station, giving
